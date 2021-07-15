@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nshimiyimana-Dias-Dyd
+- 👋 Hi, I’m @Nshimiyimana-Didas-Dyd
 - 👀 I’m interested in . programming and design..
 - 🌱 I’m currently learning civil engineering..
 - 💞️ I’m looking to collaborate on coding.
